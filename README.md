@@ -1,1 +1,0 @@
-# yamada01-error.github.io
